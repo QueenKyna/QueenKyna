@@ -1,4 +1,4 @@
-- 🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹
+- 🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹🎹
 - 🎶🤩👄🎞️🎀🖼️👓👙💋💍💎⚽🥏🎴🧩🎵🎼🔑🗝️🗝️🩻💊⚖️🛢️📱💾🖥️🖨️📽️🎬🎥🌎🌍🧹🫧🫧🫧☁️🌡️🌡️🌀
 - 👋 Hi, I’m @QueenKyna❕❕❕Down to ride on the 🌎worldwide🌍web...
 - 👀 I’m interested in ... finding and spending time with the love of my life....💊⚖️🛢️📱
@@ -14,12 +14,9 @@
 -  I 💋 like 🫧🫧🫧 blowing off ☁️ steam ☁️ when the temperature is 🌡️🌡️🌡️ is HOT!🌡🌡
 - 👓Im learning👓my new skills ⚽ building preciious💎stones 💎 while Im ⚖️weighing ⚖️ all my options and 💍💎 diaamond 💎💍 RINGS...
 -  🎶🤩👄🎞️🎀🖼️👓👙💋💍💎⚽🥏🎴🧩🎵🎼🔑🗝️🗝️🩻💊⚖️🛢️📱💾🖥️🖨️📽️🎬🎥🌎🌍🧹🫧🫧🫧☁️🌡️🌡️🌀
--  🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱
--  🌀
--  🌀
--  🌀
--  🌀
--  🌀ºººººººººººººººººººº
+-  🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱🧱
+
+
 <!---
 QueenKyna/QueenKyna is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
